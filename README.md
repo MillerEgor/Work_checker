@@ -20,8 +20,7 @@ VK: https://vk.com/water_p0l0
 
 Заказчиком проекта является Государственное бюджетное учреждение г. Москвы "Жилищник Можайского района" 
 
-
-
+(https://github.com/MillerEgor/Work_checker/files/10251381/default.pdf)
 
 
 
